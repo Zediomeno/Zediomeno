@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Zediomeno
+- 👀 I’m interested in ICT
+- 🌱 I’m currently learning How to program
